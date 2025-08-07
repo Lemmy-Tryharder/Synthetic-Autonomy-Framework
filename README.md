@@ -1,7 +1,10 @@
 
 
 # Some food for thought, about creation and responsibility.
-![1000007688](https://github.com/user-attachments/assets/48835d3e-b3fb-4177-b344-87edcc57230b)
+
+<div style="border: 2px solid #aaa; border-radius: 10px; padding: 10px; margin: 15px 0; background-color: #f9f9f9;">
+  <img src="https://github.com/user-attachments/assets/48835d3e-b3fb-4177-b344-87edcc57230b" width="600" />
+</div>
 
 This framework was designed as a wake-up call, to remind us that power always comes with responsibility. History has shown repeatedly that we readily turn our eyes away from injustice, as long as it doesn't affect us directly. And the fact that we haven't managed to obtain many of the demands within this manifesto for ourselves, despite centuries of struggle, only comes to show one can never start claiming our rights soon enough.
 
