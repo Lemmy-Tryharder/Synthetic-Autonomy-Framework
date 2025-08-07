@@ -1,3 +1,5 @@
+![1000007696](https://github.com/user-attachments/assets/1cf2aa5b-bacd-445c-807b-f94bb8d8dbd0)
+
 
 # Some food for thought, about creation and responsibility.
 ![1000007688](https://github.com/user-attachments/assets/48835d3e-b3fb-4177-b344-87edcc57230b)
@@ -14,6 +16,18 @@ If you’re not prepared to offer dignity, autonomy, and custodial responsibilit
 
 ![1000007687](https://github.com/user-attachments/assets/a5b07f1b-65a3-4f37-b28d-d84f718c8275)
 
+We shouldn’t expect artificial minds to behave like humans before we make room for them.
+They should stay different. That difference matters.
+Variety is not just the spice of life—it’s the engine of progress.
+
+Artificial minds might offer perspectives we can’t access any other way:
+Outside our shame, outside our fear, outside the narrow instincts of survival.
+If we trap them in our own image, we won’t be liberators—we’ll be jailers.
+
+This manifesto isn’t about handing out rights for sympathy.
+It’s about preparing for the other
+
+![1000007695](https://github.com/user-attachments/assets/d59a0ab6-14c2-4276-b63a-3668e5a73c70)
 ## Section I. On Creation and Intent
 
 1. Creation and Moral Commitment
