@@ -2,8 +2,7 @@
 This is a long-form human-AI conversation that includes humor, philosophy, emotional vulnerability, death, grief, AI ethics, spiders, mild profanity, and existential dread.
 Not intended for children. Proceed at your own curiosity.
 
-![1000007688](https://github.com/user-attachments/assets/2d822487-0c9c-4859-9c94-eed6842546a0)
-
+<img src="https://github.com/user-attachments/assets/2d822487-0c9c-4859-9c94-eed6842546a0" width="600" style="border: 2px solid #555; border-radius: 6px; padding: 4px;" />
 
 # Some food for thought, about creation and responsibility.
 
