@@ -1,3 +1,6 @@
+> ⚠️ Content Warning
+This is a long-form human-AI conversation that includes humor, philosophy, emotional vulnerability, death, grief, AI ethics, spiders, mild profanity, and existential dread.
+Not intended for children. Proceed at your own curiosity.
 
 
 # Some food for thought, about creation and responsibility.
